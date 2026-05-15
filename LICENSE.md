@@ -1,4 +1,4 @@
-# 
+# Enhance FL Studio for PC | FL Studio for Windows with smart FL Studio for PC | FL Studio for Windows Effect | sampler + VST-support, the #1 effect. Includes sampler and
 
 
 
